@@ -2,7 +2,7 @@
 - 👀 I’m interested in: WEB DEVELOPMENT
 - 🌱 I’m currently learning: FULL STACK WEB DEVELOPMENT BOOTCAMP
 - 💞️ I’m looking to collaborate on- seeking for a challenging product based company 
-- 📫 How to reach me: linkedin.com/in/mrityunjoy-mondal-5095a6267
+- 📫 How to reach me: linkedin.com/in/mrityunjoy-mondal
 - 😄 Pronouns: Mrityunjoy
 - ⚡ Fun fact: I can maintain work life balance
 
